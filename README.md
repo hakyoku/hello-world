@@ -1,2 +1,8 @@
 # hello-world
-First Repository!
+
+
+I'm gonna get something good out of this somehow, for surrrre
+
+- e -
+
+
